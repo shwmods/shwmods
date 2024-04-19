@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @shwmods
+- 👀 I’m interested in modding, primarily Halo Wars Definitive Edition
